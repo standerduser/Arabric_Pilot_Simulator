@@ -1,2 +1,2 @@
 # Arabric_Pilot_Simulator
-An easy made by a nonracist man 💀💀💀
+An easy game made by a nonracist man 💀💀💀
